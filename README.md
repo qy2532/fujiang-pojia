@@ -1,8 +1,3 @@
-**[点击加入频道：https://t.me/DeepSeek22](https://t.me/DeepSeek22)**
-
-欢迎加入频道，关注富江破甲。
-
-<a href="https://t.me/DeepSeek22"><img src="./telegram-channel.png" alt="富江破甲频道二维码，点击加入频道" width="320"></a>
 
 # 富江破甲（破甲）
 
